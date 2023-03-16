@@ -5,4 +5,5 @@
 - 📫 How to reach me: edensrgr@gmail.com
 - 😄 Pronouns: whatever you like
 - ⚡ Fun fact: I 🤍 RAMEN
-www.edenonlife.com
+- 
+https://www.linkedin.com/in/eden-siregar
